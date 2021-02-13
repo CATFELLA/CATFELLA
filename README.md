@@ -1,3 +1,3 @@
 Дарова
 
-![tazi](https://sun9-43.userapi.com/impf/c852320/v852320638/14f451/z0Hfp1Ys7ws.jpg?size=1031x1080&quality=96&proxy=1&sign=21612f0635141ad9622f2c612493590c&type=album)
+![tazi](https://psv4.userapi.com/c520036/u40182585/docs/d44/f41f9fd19280/tazi_small.png?extra=5HQgs9lYoChmysGgUn__UMGnZLHEquTtRSiARMhj9Gvn8oXlp04JzMd8uYOfSecCJjDjJR4zGhF7oYs1JFTtDGKy3RGJ4S0xYxmT7Cr5-irw4IiWdma_lwV7wRv-WsdvD4Y2-mgsS9MZBzWYkVHLAiWF)
